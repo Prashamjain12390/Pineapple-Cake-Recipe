@@ -1,0 +1,13 @@
+1 cup + 3 tablespoons flour(165 grams),
+1 cup Castor Sugar(110 grams),
+1/2 teaspoon Baking Soda,
+1/2 teaspoon Baking Powder,
+1/4 cup of Yogurt(60ml),
+1/4 cup vegetable oil(60ml),
+1 teaspoon vanilla extract,
+80ml Water,
+Whipped Cream,
+Chopped PineApples,
+pineapple chunks,
+cherries,
+

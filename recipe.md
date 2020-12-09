@@ -1,0 +1,20 @@
+Method:-
+- In a bowl mix the dry ingredients.
+- In another bowl mix wet ingredients properly.
+- Add the dry ingredients to the wet ones in 2 batches.
+- Add milk if the batter is too thick.
+- Grease a 7 inch round baking tin and place a parchment paper at the bottom.
+- Pour the cake batter in the tin.
+- Bake in a preheated oven at 180°C for around 25-30 minutes.
+- Once the cake is out of the oven, cool it for 5-7 minutes and unmould it and remove the parchment paper.
+- Let the cake cool down to room temperature.
+- Cut the cake into halves from the middle and keep the top layer aside.
+- Apply the juice of canned pineapples till the cake is soaked.
+- Apply a layer of whipped cream to the base and top with chopped pineapples.
+- Take more whipped cream and spread it on the chopped pineapples.
+- Soak the top layer of the cake with the pineapple juice and place it flat side up on the cake and soak it again with the pineapple juice.
+- Cover the cake with a layer of whipped cream.
+- Refrigerate the cake for 15-20 minutes.
+- Apply a second layer of whipped cream and flatten the top using an offset palette knife.
+- Decorate with whipped cream, pineapple chunks and cherries.
+-The Pinapple Cake is READY!
